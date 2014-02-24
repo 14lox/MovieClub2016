@@ -1,7 +1,7 @@
 MovieClub2016
 =============
 
-![alt tag](http://cl.ly/image/0t3N1m1q0w3d)
+![alt tag](http://cl.ly/image/0t3N1m1q0w3d/Screen%20Shot%202014-02-24%20at%206.38.46%20pm.png)
 
                                                                                                                  
                                                                        '++##                                     
